@@ -1,6 +1,6 @@
 # 🎮 HRModster Repack Tool for PUBG & BGMI 🚀
 
-**Join our Telegram group to download the tool and get updates:** [HRModster Telegram Group](https://t.me/HRModster) 📲
+**Join our Telegram group to download the tool and get updates:** [HRModster Telegram Group](https://t.me/+VTUyPGnolylkYTU1) 📲
 
 ## Overview 🛠️
 
